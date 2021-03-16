@@ -19,3 +19,5 @@ Members are all the people that agree to participate in this communal sexual exp
 The club encourages members to put in everything you expect to get out, not just sexually but logisticly as well. Pitching in for setup, food services and especially for clean up. 
 
 ## The Party
+
+Hosting members should see to ensuring a safe comfortable space is made avaiable for all members. The schedual should see that a number of WotN are avaiable and have RSVP'ed. The Whores menu of services should be posted and acknowledged by all members pior to entry to the party. Hosting members are responcible for supplying lube, condoms, food and basic drink for all members, a fee can be collected for this purpose. 
